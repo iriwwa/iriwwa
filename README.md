@@ -4,7 +4,7 @@
   
 - 📫 
 - 😄It's spring soon
-- ⚡strange
+- ⚡
 
 <!---
 iriwwa/iriwwa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
