@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning crypt.
   
 - 📫 
-- 😄 New spring, new love
+- 😄 New spring, new love, new me
 - ⚡
 
 <!---
