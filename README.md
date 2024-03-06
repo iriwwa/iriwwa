@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @iriwwa
 - 👀 I’m interested in life
-- 🌱 I’m currently learning crypt.
+- 🌱 I’m currently learning crypt
   
 - 📫 
 - 😄 New spring, new love, new me
