@@ -3,7 +3,7 @@
 - 🌱 I’m learning crypto
   
 - 📫 
-- 😄 New spring, new life, new me? new job
+- 😄 New spring, new life, new me, new job
 - ⚡ Happiness
 
 <!---
