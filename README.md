@@ -4,7 +4,7 @@
   
 - 📫 
 - 😄 New spring, new life, new me, new job
-- ⚡ Happiness
+- ⚡ Happiness, no regret
 
 <!---
 iriwwa/iriwwa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
