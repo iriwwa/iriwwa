@@ -3,7 +3,7 @@
 - 🌱 I’m learning crypto
   
 - 📫 
-- 😄 New spring, new 
+- 😄 New spring
 - without you
 - 
 
