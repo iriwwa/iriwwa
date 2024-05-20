@@ -2,7 +2,7 @@
 - 👀 I’m interested in life
 - 🌱 I’m learning crypto
   
-- 📫 The end is new beginning
+- 📫 The end is new beginning, soon
 - 😄 New spring, new life
 - without you
 - 
